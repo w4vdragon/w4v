@@ -1,2 +1,2 @@
 # w4vdragon's website
-Local nature/biochem nerd
+I love nature and science, and want to spread my knowledge and appreciation for it
